@@ -1,1 +1,1 @@
-kocham skripta <#
+kocham skripta <#3
